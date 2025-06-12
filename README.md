@@ -1,2 +1,0 @@
-# proyecttcrr
-ayudantías
